@@ -3,7 +3,9 @@
 ## Its_me_Mirsal
 
 <div align="center">
-  <img src=richusher.jpg>
+  <IMG-20211214-WA0004.jpg
+@Mirsalkgf
+>
 
 ## 📢 Guide
 Click WA logo to Join Support Group 👇
